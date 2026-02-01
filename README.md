@@ -1,5 +1,5 @@
 # 💫 About Me:
-student<br>tech professionals<br>tech<br>computer science and engineering
+
 
 
 ## 🌐 Socials:
